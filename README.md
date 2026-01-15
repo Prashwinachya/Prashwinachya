@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently pursuing my BE <br>Coding enthusiast <br>love to explore different Coding agents and features<br>Cinematographer by passion <br> 
+CSE Undergrad  <br>Coding Enthusiast <br>love to explore different Coding agents & features<br>Cinematographer<br> 
 
 
 ## 🌐 Socials:
